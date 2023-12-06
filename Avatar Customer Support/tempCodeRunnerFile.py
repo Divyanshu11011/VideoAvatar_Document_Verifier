@@ -1,0 +1,1 @@
+aadhar sample.jpeg
